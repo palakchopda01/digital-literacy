@@ -1,5 +1,5 @@
 ✅ Do’s
-Think before you post — consider how your content may be perceived by others.
+Think before you post — consider how your content may be perceived by others./n
 Maintain privacy settings to control who can view your personal information.
 Be respectful and professional in your interactions and comments.
 Verify information before sharing to avoid spreading misinformation.
